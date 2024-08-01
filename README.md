@@ -8,7 +8,7 @@
 ![Succulent Of Wasabi](https://github.com/user-attachments/assets/f3ef5009-f6f9-49f5-8608-4d1a36fc8452)
 ![Tick, tick, tick](https://github.com/user-attachments/assets/55c18ea9-c868-4475-b8e9-81042a39e0e5)
 ![beaty](https://github.com/user-attachments/assets/afc9b0e6-683c-4f0a-9274-6317ddc9bf1f)
-![Sex And Warmth!](https://github.com/user-attachments/assets/1568f0f2-d49a-47a2-b001-712a0f528efe)
+![Sex And Warmth!](https://github.com/user-attachments/assets/9305f6ef-a735-440c-85c0-900c0eebf641)
 ![Silent Hill](https://github.com/user-attachments/assets/44fa9b2b-542c-4796-a23a-6b0489b64724)
 ![One Thing](https://github.com/user-attachments/assets/cce9b21b-3fef-4722-b726-4986532dc69e)
 ![Nameplate](https://github.com/user-attachments/assets/b7d4976c-8052-4fc6-8626-1626423bcd2a)
